@@ -11,6 +11,6 @@ radiostatic connoisseur since 2019
 **i really hate radioapple dni if you like radioapple**
 &nbsp;<div align="center">
 
-<a href="https://korrinteger.atabook.org">ata</a> , <a href="https://korrinteger.straw.page">sp</a>
+<a href="https://korrinteger.atabook.org">ata</a> , <a href="https://korr.lurk.me">lurk.me</a>
 
 ![](https://pbs.twimg.com/media/G68Lfl5bkAw2vT5?format=jpg&name=4096x4096)
