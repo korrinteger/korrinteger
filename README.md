@@ -6,7 +6,7 @@ my name is korr
 
 he/him
 
-radiostatic connoisseur since 2019
+voxal connoisseur since 2019
 
 **i really hate radioapple dni if you like radioapple**
 &nbsp;<div align="center">
